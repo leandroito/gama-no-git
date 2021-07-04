@@ -1,0 +1,1 @@
+Ótimo, não só pelo conteúdo! A plataforma e toda a experiência (que seriam o produto) são muito bem desenhadas e redefinem a maneira de aprender
